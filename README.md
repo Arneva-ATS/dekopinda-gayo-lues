@@ -1,1 +1,1 @@
-# dekopinda-gayo-lues
+# dekopinda-karanganyar
